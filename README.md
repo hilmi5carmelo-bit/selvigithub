@@ -12,5 +12,5 @@ siapa yg berani baca ini
 <details>
 <summary>Klik OK untuk pesan rahasia</summary>
 
-Gery, kamu keren!
+kamu keren!
 </details>
