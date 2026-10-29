@@ -8,7 +8,7 @@ siapa yg berani baca ini
 
 jika Gery klik OK:
 
-[![OK](https://img.shields.io/badge/OK-klik-brightgreen)](#pesan-untuk-gery)
+[![OK](https://img.icons8.com/?size=100&id=93340&format=png&color=000000)](#pesan-untuk-gery)
 
 ## Pesan untuk Gery
 
