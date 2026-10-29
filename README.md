@@ -5,7 +5,7 @@ wow amazing papa suka
 
 no more day
 
-<a href="https://tenor.com/id/view/waving-hair-lucy-cyberpunk-edgerunners-blowing-wind-windy-gif-26918326"><img src="https://media.tenor.com/xPDIA-Tybc8AAAAi/waving-hair-lucy.gif" alt="GIF thumbs-up David Martinez dari Tenor"></a>
+<a href="https://tenor.com/id/view/waving-hair-lucy-cyberpunk-edgerunners-blowing-wind-windy-gif-26918326"><img src="https://media.tenor.com/xPDIA-Tybc8AAAAi/waving-hair-lucy.gif"g alt="GIF thumbs-up David Martinez dari Tenor"></a>
 
 well well well
 
