@@ -1,6 +1,3 @@
-wow amazing papa suka
-
-
 <a href="https://tenor.com/id/view/cyberpunk-edgerunners-david-martinez-cyberpunk-david-gif-6162079462798594157"><img src="https://media1.tenor.com/m/VYQan5HXEG0AAAAC/cyberpunk-edgerunners-david-martinez.gif" width="600" alt="GIF thumbs-up David Martinez dari Tenor"></a>
 
 no more day
