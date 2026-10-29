@@ -1,7 +1,7 @@
 wow amazing papa suka
 
 
-<a href="https://tenor.com/id/view/thumbs-up-david-martinez-cyberpunk-edgerunners-i-like-it-i-approve-gif-26914838"><img src="https://media.tenor.com/d0UvU7n-KTIAAAAM/thumbs-up-david-martinez.gif" width="600" alt="GIF thumbs-up David Martinez dari Tenor"></a>
+<a href="https://tenor.com/id/view/cyberpunk-edgerunners-david-martinez-cyberpunk-david-gif-6162079462798594157"><img src="https://media.tenor.com/m/VYQan5HXEG0AAAAC/cyberpunk-edgerunners-david-martinez.gif" width="600" alt="GIF thumbs-up David Martinez dari Tenor"></a>
 
 no more day
 
