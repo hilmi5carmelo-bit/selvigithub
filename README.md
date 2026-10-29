@@ -6,10 +6,8 @@ well well well
 
 siapa yg berani baca ini
 
-jika Gery klik OK:
-
-[![OK](https://img.icons8.com/?size=100&id=93340&format=png&color=000000)](#pesan-untuk-gery)
-
-## Pesan untuk Gery
+<details>
+<summary><img src="https://img.icons8.com/?size=100&id=93340&format=png&color=000000" width="32" alt="OK"> Klik OK untuk pesan rahasia</summary>
 
 Gery, kamu keren!
+</details>
